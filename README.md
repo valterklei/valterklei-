@@ -1,4 +1,4 @@
-🤞 Olá eeu sou Valterklei
+🤞 Olá eu sou Valterklei
 
  💻Estudante de Ciências da computação
  📖 Contate-me no Email: valterklei@gmail.com
